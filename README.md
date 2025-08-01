@@ -1,2 +1,1 @@
-# myself
--intro
+# 🔥I'M THE GOD OF HELLFIRE🔥
